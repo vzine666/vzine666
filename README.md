@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @vzine666
+- 👋 Hi, I’m @vzine666 (Also call me Vzine)
 - 🌱 I’m currently a solo-game developer
